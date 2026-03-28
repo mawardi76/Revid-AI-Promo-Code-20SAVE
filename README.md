@@ -25,7 +25,7 @@
 <li><strong>Voice & Avatar Options:</strong> Create content without filming yourself</li>
 </ul>
 
-<img src="https://i.postimg.cc/MptNJw7g/Revid_ai_Discount_Code_3.png" alt="Revid AI Discount Code 20SAVE - 20% off on all payments within the first month" width="1080"> 
+<img src="https://i.postimg.cc/0NjDnzpV/Revid_ai_Discount_Code_13.png" alt="Revid AI Discount Code 20SAVE - 20% off on all payments within the first month" width="1080"> 
 
 <h2>Part 3: Why Revid AI Stands Out</h2>
 
@@ -54,7 +54,7 @@
 <li>Use the first month to explore all premium features</li>
 </ul>
 
-<img src="https://i.postimg.cc/HLhNjtPs/Revid_ai_Discount_Code_14.png" alt="Revid AI Coupon 20SAVE - 20% off on all payments within the first month" width="1080"> 
+<img src="https://i.postimg.cc/FKz3pYjp/Revid_ai_Discount_Code_11.png" alt="Revid AI Coupon 20SAVE - 20% off on all payments within the first month" width="1080"> 
 
 <h2>Part 6: Common Mistakes to Avoid</h2>
 
